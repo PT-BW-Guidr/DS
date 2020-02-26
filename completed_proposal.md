@@ -1,4 +1,4 @@
-# Complited proposal
+# Completed proposal
 
 ☝️ Proposal
 
